@@ -35,5 +35,18 @@ Matthew Kipsum / Research Officer/ KEMRI CGHR /
 
 # Opportunities
 
-# Considering hydroponics, here is the link to apply for the training
+## Considering hydroponics, here is the link to apply for the training
 https://meet.google.com/linkredirect?authuser=0&dest=https%3A%2F%2Fnikowaks.com%2Fcategory%2Fapplications%2F
+
+## Considering doing medrepping (med reps) contact: 
+1. Zaccheus Kiprono
+
+## Considering doing diploma in Medical Lab Sciences (MLS) Contact:
+
+1. Elias Kaburia
+2. Zaccheus Kiprono
+
+## Considering attachments, internships, post-bac and graduate studies contact:
+1. Matthew Kipsum
+2. Eric Barasa
+3. Winfred Gatua
